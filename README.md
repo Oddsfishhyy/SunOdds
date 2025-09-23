@@ -1,6 +1,6 @@
                                                      ~Operation-Beat-The-Odds!~
 
-  ![gif alt](https://github.com/SunOdds/SunOdds/blob/dab274b139bd0a430e25fa8742d196e07614f5b6/1f7c1219-112c-4f36-b86c-2103f47607af.gif)
+  ![gif alt](https://github.com/SunOdds/SunOdds/blob/dc3a807cbe454aa5010f50886afd4a95fcebc58b/e726a1b3-e0b8-461a-9158-f2e707db5101.jpeg)
                                                           
                                                             Hi there!
 
