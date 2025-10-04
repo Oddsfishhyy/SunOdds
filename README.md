@@ -7,6 +7,6 @@
                                                   ___   Odds/Fish/CheeseCake  ___
                                                               _ INFP _
 
-																									Say hi... when I'm in good mood...
-																									              ok?
+				                                 Say hi... when I'm in good mood...
+																ok?
   
